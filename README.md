@@ -10,4 +10,4 @@ And you're stuck in my heart 𐀪𐀪 ...
 I hang onto every word you say 🎤🎸🎶!  (You know the rest of the song)
 
 I love you bearyy much 🧸ིྀ!!  🎈🥳🎊
-https://github.com/nasala-nasla/happy-birthdayy/blob/main/Screenshot%202025-01-22%20at%202.55.19%20PM.png
+! [Happy birthday] (https://github.com/nasala-nasla/happy-birthdayy/blob/main/Screenshot%202025-01-22%20at%202.55.19%20PM.png?raw=true)
